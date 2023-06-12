@@ -1,1 +1,3 @@
-all my mods an my playing map
+all my mods and my playing map
+
+password is Zachary
